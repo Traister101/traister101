@@ -1,16 +1,13 @@
-### Hi there 👋
+Gamer weeb and a newbie programer imagine that
 
-<!--
-**Traister101/traister101** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+If you wanna contact me Discord is really the best way to do it Traister101#1882
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+As for what stuff I do well your gonna look through my repositories anyway so just go do that already. 
+
+
+Also my [MAL](https://myanimelist.net/animelist/Traister101)
